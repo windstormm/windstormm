@@ -1,18 +1,18 @@
 > "Hate is a place.. a man who cannot stand sadness goes." ⟡
-# Hallo ~ જ⁀➴
+## Hallo ~ જ⁀➴
  Everything you need to know... about me!
 > I swear i searched far and wide I js can't find the artist
 
 ![my glorious king Haku](https://i.pinimg.com/1200x/7e/9c/bd/7e9cbdda1160134e0d0133b134cb085f.jpg)
 
-### ⋆ ˚｡⋆୨୧˚ I'm Star, or Eos. I'm a *minor*. I speak mostly english, but I can hold a coversation in tr.
+ ⋆ ˚｡⋆୨୧˚ I'm Star, or Eos. I'm a *minor*. I speak mostly english, but I can hold a coversation in tr.
 
-## INT ☀ 
+### INT ☀ 
 - Mythology nerds! Talk to me!!
 - Freaks
 - People who don't mind a little yap here and there...
 
-## DNI 🌙
+### DNI 🌙
 - Basic dni criteria
 - Anyone super/hyper sensitive or easily overstimulated.
 - Under 12 or over 25 (unless I decide otherwise heh...)
