@@ -1,5 +1,6 @@
 ## Hallo ~
-> Everything you need to know... <br/>
+> Everything you need to know...
+
 ![my glorious king gyro zepelli](file:///Users/zoyis/Downloads/pizzamozarella.jpg)
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
