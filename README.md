@@ -1,7 +1,7 @@
 # Hallo ~ જ⁀➴
 Everything you need to know... 
 
-![my glorious king thorfinns dagger](https://i.pinimg.com/736x/c3/44/79/c344790a20132dbf08b7424c1a7a9ed1.jpg)
+![my glorious king howl and queen sophie](https://i.pinimg.com/1200x/39/62/50/396250d67df58ea18c0ac5313c47a8a5.jpg)
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
