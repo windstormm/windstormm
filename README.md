@@ -1,7 +1,7 @@
-## Hallo ~
-Everything you need to know...
+# Hallo ~ જ⁀➴
+Everything you need to know... 
 
-![my glorious king gyro zepelli](https://i.pinimg.com/1200x/a7/9b/f5/a79bf54fe9ce8071420271687dd55d24.jpg)
+![my glorious king thorfinns dagger](https://i.pinimg.com/736x/c3/44/79/c344790a20132dbf08b7424c1a7a9ed1.jpg)
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
