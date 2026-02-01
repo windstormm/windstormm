@@ -11,7 +11,7 @@ Everything you need to know... about me!
 - Freaks
 - People who don't mind a little yap here and there...
 
-### DNI ☾
+### DNI 🌙
 - Basic dni criteria
 - Anyone super/hyper sensitive or easily overstimulated.
 - Under 12 or over 25 (unless I decide otherwise heh...)
