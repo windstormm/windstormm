@@ -1,5 +1,5 @@
 ## Hallo ~
-> Everything you need to know...
+Everything you need to know...
 
 ![my glorious king gyro zepelli](https://i.pinimg.com/1200x/78/84/cc/7884cc22dbf5a0fd6c65d5efe0c2bd1e.jpg)
 <!--
