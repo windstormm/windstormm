@@ -1,5 +1,5 @@
 ## Hallo ~ જ⁀➴
- Everything you need to know... about me!
+ Everything you need to know... about me! (links at the bottom)
 > "Hate is a place.. a man who cannot stand sadness goes." ⟡
 
 
@@ -19,7 +19,7 @@
 
 > "There is nobody in the entire world that deserves to get hurt. Nobody in this world."
 ![my glorious king Haku](https://i.pinimg.com/1200x/7e/9c/bd/7e9cbdda1160134e0d0133b134cb085f.jpg)
-[strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](starzo.atabook.org)
+[strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
