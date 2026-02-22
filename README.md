@@ -10,12 +10,14 @@
 - Freaks
 - People who don't mind a little yap here and there...
 
+IWC...
+- under 12 or over 25 years of age
+- hazbin hotel fans </3
+
 ### DNI 🌙
 - Basic dni criteria
 - Anyone super/hyper sensitive or easily overstimulated.
-- Under 12 or over 25 (unless I decide otherwise heh...)
 - proshippers
-- Hazbin Hotel fanatics... (unless otherwise!!)
 
 > "There is nobody in the entire world that deserves to get hurt. Nobody in this world."
 ![my glorious king Haku](https://i.pinimg.com/1200x/7e/9c/bd/7e9cbdda1160134e0d0133b134cb085f.jpg)
