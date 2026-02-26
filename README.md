@@ -20,7 +20,7 @@
 - proshippers
 
 > "There is nobody in the entire world that deserves to get hurt. Nobody in this world."
-![my glorious king Haku](https://i.pinimg.com/1200x/7e/9c/bd/7e9cbdda1160134e0d0133b134cb085f.jpg)
+![nymphs dancing](<img width="1199" height="305" alt="image" src="https://github.com/user-attachments/assets/5dbc412c-c284-440b-ab19-0ed6c5ef804a" />)
 [strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
