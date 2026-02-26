@@ -26,6 +26,8 @@
 ![nymphs dancing](https://i.pinimg.com/1200x/15/f2/58/15f25899d22f036f7113ee29cd5453bf.jpg)
 
 ### MORE ⁺ ₊ ⊹
+I can get a bit carried away with jokes, if I ever make anyone uncomfy just tell me!! And I expect to be able to do the same. 
+
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
