@@ -1,4 +1,4 @@
-## Hallo ~ જ⁀➴
+## Hallo ~➴
  Everything you need to know... about me! (links at the bottom)
 > "Hate is a place.. a man who cannot stand sadness goes." ⟡
 
