@@ -20,7 +20,7 @@
 - proshippers
 
 > "There is nobody in the entire world that deserves to get hurt. Nobody in this world."
-![nymphs dancing](<img width="1199" height="305" alt="image" src="https://github.com/user-attachments/assets/5dbc412c-c284-440b-ab19-0ed6c5ef804a" />)
+![nymphs dancing](https://pin.it/7fvK7klsq)
 
 > [strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
 <!--
