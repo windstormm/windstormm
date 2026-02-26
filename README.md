@@ -29,6 +29,8 @@ MORE ⁺ ₊ ⊹
 I can get a bit carried away with jokes, if I ever make anyone uncomfy just tell me!! And I expect to be able to do the same. 
 And please, don't drop crazy personal info during our first meeting. 
 
+![divider2](https://64.media.tumblr.com/e4c4c065da195e6921c3b4e1b1e09d41/c47640644f924930-3e/s640x960/7ccec98f64b87e380c456865bad294f34c7d4b73.pnj)
+
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
