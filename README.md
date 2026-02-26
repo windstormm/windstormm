@@ -21,6 +21,7 @@
 
 > "There is nobody in the entire world that deserves to get hurt. Nobody in this world."
 ![nymphs dancing](<img width="1199" height="305" alt="image" src="https://github.com/user-attachments/assets/5dbc412c-c284-440b-ab19-0ed6c5ef804a" />)
+
 [strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
