@@ -1,5 +1,5 @@
 ![divider](https://64.media.tumblr.com/e4c4c065da195e6921c3b4e1b1e09d41/c47640644f924930-3e/s640x960/7ccec98f64b87e380c456865bad294f34c7d4b73.pnj)
-## Hallo ~➴
+## Hallo ⁺ ₊~ ➴
  Everything you need to know... about me! (links at the bottom)
 > "Hate is a place.. a man who cannot stand sadness goes." ⟡
 
@@ -24,6 +24,8 @@
 
 [strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
 ![nymphs dancing](https://i.pinimg.com/1200x/15/f2/58/15f25899d22f036f7113ee29cd5453bf.jpg)
+
+### MORE ⁺ ₊ ⊹
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
