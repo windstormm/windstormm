@@ -25,8 +25,9 @@
 [strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
 ![nymphs dancing](https://i.pinimg.com/1200x/15/f2/58/15f25899d22f036f7113ee29cd5453bf.jpg)
 
-### MORE ⁺ ₊ ⊹
+MORE ⁺ ₊ ⊹
 I can get a bit carried away with jokes, if I ever make anyone uncomfy just tell me!! And I expect to be able to do the same. 
+And please, don't drop crazy personal info during our first meeting. 
 
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
