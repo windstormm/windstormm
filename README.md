@@ -1,3 +1,4 @@
+![divider](https://64.media.tumblr.com/e4c4c065da195e6921c3b4e1b1e09d41/c47640644f924930-3e/s640x960/7ccec98f64b87e380c456865bad294f34c7d4b73.pnj)
 ## Hallo ~➴
  Everything you need to know... about me! (links at the bottom)
 > "Hate is a place.. a man who cannot stand sadness goes." ⟡
