@@ -23,7 +23,7 @@
 > "There is nobody in the entire world that deserves to get hurt. Nobody in this world."
 
 [strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
-![wispy](https://cdn.corenexis.com/f/VGtvhsnfhsN.gif)
+![wispy](https://cdn.corenexis.com/f/cU8wtXsnyD9.jpg)
 
 MORE ⁺ ₊ ⊹
 I can get a bit carried away with jokes, if I ever make anyone uncomfy just tell me!! And I expect to be able to do the same. 
