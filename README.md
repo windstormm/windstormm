@@ -22,7 +22,7 @@
 
 > "There is nobody in the entire world that deserves to get hurt. Nobody in this world."
 
-[strawpage](https://starzoo.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
+[strawpage out of order!!]() | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
 ![wispy](https://cdn.corenexis.com/f/cU8wtXsnyD9.jpg)
 
 MORE ⁺ ₊ ⊹
