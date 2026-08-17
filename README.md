@@ -4,7 +4,7 @@
 > "Hate is a place.. a man who cannot stand sadness goes." ⟡
 
 
- ⋆ ˚｡⋆୨୧˚ I'm Star, or Eos. I'm a *minor*. I speak mostly english, but I can hold a coversation in tr.
+ ⋆ ˚｡⋆୨୧˚ I'm Paris, or Eos. I'm a *minor*. I speak mostly english, but I can hold a coversation in tr.
 
 ### INT ☀ 
 - Mythology nerds! Talk to me!!
