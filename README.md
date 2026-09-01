@@ -1,37 +1,22 @@
-![divider](https://64.media.tumblr.com/e4c4c065da195e6921c3b4e1b1e09d41/c47640644f924930-3e/s640x960/7ccec98f64b87e380c456865bad294f34c7d4b73.pnj)
-## Hallo ⁺ ₊~ ➴
- Everything you need to know... about me! (links at the bottom)
-> "Hate is a place.. a man who cannot stand sadness goes." ⟡
+![divider](https://64.media.tumblr.com/d64d872d2a991d3c655b40ba72e0a9ed/26598d4cb80fa85a-6b/s1280x1920/0ce72714708e9fc74855326735f51f3bfb4bbdc0.pnj)
+
+꒰ ⸝⸝ Int freely... tell me if I've made you uncomfortable (and I will do the same) ⸝⸝ ꒱ ![pom](https://64.media.tumblr.com/602d08289c0c055b3dde0c48c2a3b252/d4b6583b78cb9bc6-27/s75x75_c1/1ff4e76cd92bd592473912c279da815eaf702951.gifv)
+
+⸝⸝ a bit socially awkward... but I'm usually happy to talk (˶˃ ᵕ ˂˶)
+
+### Please note I'm..
+- ⸝⸝ not great at using tone tags
+- ⸝⸝ joking 99% of the time (unless clarified that I'm serious)
+- ⸝⸝ slow and might ask for deeper insight 
+
+![pom2](https://64.media.tumblr.com/06f671b5e35c88733da7b01be86d3f92/d4b6583b78cb9bc6-6a/s75x75_c1/c8fadd5beaa797f31c4328e6f1449012c3e8a239.gifv) < me??
+
+[strawpage out of order!](https://youtu.be/qhL6BYHeh3I?si=DfHz0espgrzySmNb) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
 
 
- ⋆ ˚｡⋆୨୧˚ I'm Paris, or Eos. I'm a *minor*. I speak mostly english, but I can hold a coversation in tr.
+![divider2](https://64.media.tumblr.com/cad5c7a393e2116f639876fceb762f65/3934b00db233be0e-fb/s1280x1920/49db3142021c2d61102283a91088b13ee1e79fc4.gifv)
 
-### INT ☀ 
-- Mythology nerds! Talk to me!!
-- Freaks
-- People who don't mind a little yap here and there...
-
-### IWC...
-- under 12 or over 25 years of age
-- hazbin hotel fans </3
-
-### DNI 🌙
-- Basic dni criteria
-- Anyone super/hyper sensitive or easily overstimulated.
-- proshippers
-
-> "There is nobody in the entire world that deserves to get hurt. Nobody in this world."
-
-[strawpage out of order!!](https://youtu.be/qhL6BYHeh3I?si=DfHz0espgrzySmNb) | [pronounspage](https://en.pronouns.page/@ztarzo) | [Atabook](https://starzo.atabook.org)
-
-MORE ⁺ ₊ ⊹
-I can get a bit carried away with jokes, if I ever make anyone uncomfy just tell me!! And I expect to be able to do the same. 
-And please, don't drop crazy personal info during our first meeting. 
-
-PT ⁺ ₊ ⊹
-Most interactions are welcome! Anyone (unless included in dni or iwc) is welcome to sit with me. If any of my skins look similar to someone I know, I do get perms to inspo off of them.
-
-![divider2](https://64.media.tumblr.com/e4c4c065da195e6921c3b4e1b1e09d41/c47640644f924930-3e/s640x960/7ccec98f64b87e380c456865bad294f34c7d4b73.pnj)
+![divider](https://64.media.tumblr.com/d64d872d2a991d3c655b40ba72e0a9ed/26598d4cb80fa85a-6b/s1280x1920/0ce72714708e9fc74855326735f51f3bfb4bbdc0.pnj)
 
 <!--
 **windstormm/windstormm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
