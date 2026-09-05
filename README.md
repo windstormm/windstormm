@@ -7,7 +7,7 @@
 ### Please note I'm..
 - ⸝⸝ not great at using tone tags
 - ⸝⸝ joking 99% of the time (unless clarified that I'm serious)
-- ⸝⸝ slow and might ask for deeper insight 
+- ⸝⸝ slow and might ask for more info
 
 ![pom2](https://64.media.tumblr.com/06f671b5e35c88733da7b01be86d3f92/d4b6583b78cb9bc6-6a/s75x75_c1/c8fadd5beaa797f31c4328e6f1449012c3e8a239.gifv) < me??
 
