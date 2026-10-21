@@ -11,7 +11,7 @@
 
 ![pom2](https://64.media.tumblr.com/06f671b5e35c88733da7b01be86d3f92/d4b6583b78cb9bc6-6a/s75x75_c1/c8fadd5beaa797f31c4328e6f1449012c3e8a239.gifv) < me??
 
-[strawpage](https://pomm.straw.page) | [pronounspage](https://en.pronouns.page/@ztarzo) | [atabook](https://nik.atabook.org/)
+[strawpage](https://pomm.straw.page) | [pronounspage](https://en.pronouns.page/@pompurin) | [atabook](https://nik.atabook.org/)
 
 
 ![divider2](https://64.media.tumblr.com/cad5c7a393e2116f639876fceb762f65/3934b00db233be0e-fb/s1280x1920/49db3142021c2d61102283a91088b13ee1e79fc4.gifv)
